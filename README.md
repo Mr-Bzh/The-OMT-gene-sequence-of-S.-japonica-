@@ -1,1 +1,1 @@
-# The-OMT-gene-sequence-of-S.-japonica-
+# The OMT gene sequence of S.japonica
